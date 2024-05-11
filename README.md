@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **any software projects that is usefull for everyone**
 
-- 📫 How to reach me **sudenur867@gmail.com or via linkedin www.linkedin.com/in/sudenurcevik/**
+- 📫 How to reach me **sudecevikdev@gmail.com or via linkedin www.linkedin.com/in/sudenurcevik/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
